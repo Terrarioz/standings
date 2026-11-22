@@ -1,1 +1,1 @@
-# standings
+# HS funsies
